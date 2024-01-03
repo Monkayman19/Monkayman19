@@ -1,8 +1,8 @@
 I
-Have
-No
-Idea
-What
+have
+no
+idea
+what
 I
-Am
-Doing
+am
+doing
